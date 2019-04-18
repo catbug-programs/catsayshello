@@ -1,6 +1,0 @@
-I am cat and a bug too
-how strange right??
-My inner cat says meaw....
-But my outer bug says wuwao wuwao...
---poem by catbug
-you can remove and edit things here too.
